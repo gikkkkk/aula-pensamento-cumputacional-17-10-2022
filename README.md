@@ -1,0 +1,1 @@
+# aula-pensamento-cumputacional-17-10-2022
